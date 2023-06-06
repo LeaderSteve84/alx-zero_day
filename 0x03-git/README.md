@@ -1,1 +1,1 @@
-My Git traing is cool and fair
+My Git training is cool and fair
